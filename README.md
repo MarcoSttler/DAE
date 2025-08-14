@@ -1,0 +1,2 @@
+# DAE
+Rangkuman Minggu pertama
